@@ -1,1 +1,1 @@
-Samsonite Ibon Collection
+Bachelor thesis GitHub wiki images
